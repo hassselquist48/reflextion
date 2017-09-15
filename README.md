@@ -8,6 +8,6 @@ this class and if i cant then i have to take it again.
 ---
 
 # end of 2 week
-9/15/17
+## 9/15/17
 this week we learned alot and the most important thiing i learned was that i need to focus more on what the teacher is saying instead of trying to do it. when you ship stuff you have to 
 acount for all the other mail and packeges that you have.stuff like other mail and damage and acountability for it ect.
