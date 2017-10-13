@@ -11,3 +11,30 @@ this class and if i cant then i have to take it again.
 ## 9/15/17
 this week we learned alot and the most important thiing i learned was that i need to focus more on what the teacher is saying instead of trying to do it. when you ship stuff you have to 
 acount for all the other mail and packeges that you have.stuff like other mail and damage and acountability for it ect.
+
+
+---
+
+# end of 3rd week
+## 9/22/17
+so this week was really confusing. it also when bye super fast. we learned about packets/traveling sales man/ect. it was all really weird it was like speaking a forgein language that you can semi 
+semi understand.when we watched that video i couldnt uderstand anything but under stood litte cuts and sinps of it. this week was kinda interesting but i think that we should have taken this a little slower.
+
+
+---
+
+# end of week 3
+## 10/5/17
+we leanreed alot about the works of xml and how to build a node and a subnode and that kind of stuff. honestly it was not the highlight of my week but its over so. we also learened about
+ how to make a website. it was strange doing this on our own but it was even weirder do the xml.
+
+---
+
+# end of week 4
+## 10/5/17
+we are building our own websites and i have a slight idea of what im doing but i still need to lear just like everyone else.i love to use computers and websites that other people made but when your making your own then its a challenge. i have been thinking about doing this site that i am doing but im seriously reconsidering. i can barly keep up with all of this and i am being told every day by all my teachers oh your way to smart for this,or you need to do better than this. honestly i kinda just want to take a break from all this. i just want to get through this and be done but i still have to try.
+
+
+# end of week 5
+## 10/13/17
+well we are building a pizza website and i think that im doing ok but i still need to work on it. when i first started getting the hang of html it got easy really quick. i am actually kinda getting to like it, but i still think that using a alredy built website is better.
