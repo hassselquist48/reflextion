@@ -38,3 +38,8 @@ we are building our own websites and i have a slight idea of what im doing but i
 # end of week 5
 ## 10/13/17
 well we are building a pizza website and i think that im doing ok but i still need to work on it. when i first started getting the hang of html it got easy really quick. i am actually kinda getting to like it, but i still think that using a alredy built website is better.
+
+
+# end of week 6
+## 10/23/17
+i am starting to like using html more and more every week because i can do more stuff with it and i am trying to use it for more stuff that can help other people.
