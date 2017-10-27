@@ -43,3 +43,9 @@ well we are building a pizza website and i think that im doing ok but i still ne
 # end of week 6
 ## 10/23/17
 i am starting to like using html more and more every week because i can do more stuff with it and i am trying to use it for more stuff that can help other people.
+
+
+# end of week 7
+## 10/27/17
+in class we are working on our google projects and it is really relaxing that is why i like this class,cause it is the one class where i dont constantly have to be listening, like in jrotc you have to listen but here you have to work on your project but you can do what ever you want with your project.
+
