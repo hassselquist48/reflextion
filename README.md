@@ -49,3 +49,7 @@ i am starting to like using html more and more every week because i can do more 
 ## 10/27/17
 in class we are working on our google projects and it is really relaxing that is why i like this class,cause it is the one class where i dont constantly have to be listening, like in jrotc you have to listen but here you have to work on your project but you can do what ever you want with your project.
 
+# end of week 8
+## 11/3/17
+i think that i could deffinently do better on my website because it has alot of mistakes and it is not very good but i am still working on it. when i do coding i think it calmes me down alittle.
+
