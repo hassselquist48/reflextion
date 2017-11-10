@@ -53,3 +53,7 @@ in class we are working on our google projects and it is really relaxing that is
 ## 11/3/17
 i think that i could deffinently do better on my website because it has alot of mistakes and it is not very good but i am still working on it. when i do coding i think it calmes me down alittle.
 
+# end of week 9
+## 11/10/17
+when my logo is finished its going to be awsome. when we are in class i love to just sit there and work and listen to music.
+
