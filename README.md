@@ -57,3 +57,6 @@ i think that i could deffinently do better on my website because it has alot of 
 ## 11/10/17
 when my logo is finished its going to be awsome. when we are in class i love to just sit there and work and listen to music.
 
+# end of week 10
+## 12/1/17
+This week we are making a website and its been a chalange for all of us. When we work on this we have to communicate with each other and are communication is alittle off.We could deffinantly use some help.
