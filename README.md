@@ -60,3 +60,8 @@ when my logo is finished its going to be awsome. when we are in class i love to 
 # end of week 10
 ## 12/1/17
 This week we are making a website and its been a chalange for all of us. When we work on this we have to communicate with each other and are communication is alittle off.We could deffinantly use some help.
+
+
+# end of week 11
+## 12/14/17
+This week has been very confusing weve been moving fast and its kinda hard to comprehend but it feels good to be able to say well we made a website for this school
